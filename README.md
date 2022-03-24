@@ -4,4 +4,4 @@
 - How to reach me: wdarling@tulane.edu
 
 
-[WD_Resume22.pdf](https://github.com/wdarlin/wdarlin/files/8343529/WD_Resume22.pdf)
+
